@@ -1,17 +1,15 @@
-
+Title: Dampak Lonjakan Glukosa Pasca Makan terhadap Peradangan Pembuluh Darah dan Risiko Penyakit Kardiovaskular
 **
 
 
-
-  
-
-Title: Dampak Lonjakan Glukosa Pasca Makan terhadap Peradangan Pembuluh Darah dan Risiko Penyakit Kardiovaskular
 
 Tags: #glucosespike #glycemia #insulinresistance #atherosclerosis #metabolichealth #diabetes #postprandialglucose #inflammation #processedfoods #cardiovasculardisease
 
 Specialty: #endokrinologi #endocrinology #kardiologi #cardiology #metabolismeklinis #clinicalmetabolism #nutrisi #nutrition #fisiologiolahraga #sportsphysiology #kedokteranpreventif #preventivemedicine
 
   
+**
+
 
 Nur Agus Prasetyo
 
